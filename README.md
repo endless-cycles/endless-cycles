@@ -9,6 +9,6 @@
 </p>
 <div align="center">
 
-  [Pony Town Patreon](https://www.patreon.com/c/chronosrebirth/posts) 
+  [Pony Town Patreon](https://www.patreon.com/c/chronosrebirth/posts) ; [Rentry](https://rentry.co/chronos-shadowmilk)
 
 </div>
