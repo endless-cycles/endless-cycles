@@ -14,3 +14,11 @@
 <details>
   <summary><b>dni</b></summary> Proship ,, Toxic ,, Marriage proposal (or dating proposal) ,, pedophile / darkship / problematic ,, racist / homophobic .
 
+<p align="center">
+<details>
+  <summary><b>a little bit about me</b></summary> I love making friends, but I’m not very good at keeping a conversation going and I tend to get nervous—I hope you don’t mind that! That said, I’m a really nice and kind person!!!
+  I spend most of my time (sometimes) semi-AFK, or drawing/watching things. Feel free to reach out via whispers if I don’t respond—if you’d like to, that is. ^_^ !!!
+
+  <details>
+  <summary><b>fandoms I’m in (just a few; there are many)</b></summary> TF2 / FF ,, Postal / Postais ,, WolfWalkers ,, HTTYD ,, Cry Of Fear / Afraid Of Monsters ,, Qsmp / Qsmp2 / Dsmp / Arkanis / SFAWTDE / TrazerCraft ,, Forsaken...Idk ,, CRK ,, Moral Orel ,, Spooky Month ,, Sonic / Familiy.Exe ,, Regretevator ,, Married In Red / Dead Plate / Elevator Hitch ,, No, Im not a Human ,, Deltarune ,, CFMOT / ITFT / Animatic Battle / Hfjone ,, SlendyTubbies ,, Gravity Falls ,, Mouthwashing ,, WK / Wild Kratts . 
+
