@@ -1,6 +1,6 @@
+
 <p align="center"><img width="538" height="20" alt="Image" src="https://github.com/user-attachments/assets/197e6fa4-2565-49d2-b820-2864baf38430" />
 <p align="center"><img width="400" height="43" alt="Image" src="https://github.com/user-attachments/assets/a2bd805e-3517-4a45-8af6-858dfa49d034" />
-
 
 <p align="center"><img width="600" height="418" alt="Image" src="https://github.com/user-attachments/assets/90e73c3d-a618-4d57-aab7-1fff260b76e9" />
 
@@ -32,3 +32,6 @@
 
 <p align="center"><img width="400" height="17" alt="Image" src="https://github.com/user-attachments/assets/e0ca9c1c-0579-41b6-b9d6-ae780cff8483" />
 
+  ### 🎧 Ouvindo agora:
+  **Holding Out for a Hero** (From "Footloose" Soundtrack) — *Bonnie Tyler*
+  
