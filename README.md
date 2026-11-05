@@ -1,3 +1,4 @@
+<p align="center"><img width="538" height="20" alt="Image" src="https://github.com/user-attachments/assets/197e6fa4-2565-49d2-b820-2864baf38430" />
 <p align="center"><img width="400" height="43" alt="Image" src="https://github.com/user-attachments/assets/a2bd805e-3517-4a45-8af6-858dfa49d034" />
 
 
@@ -29,4 +30,5 @@
   <summary><b>(fandoms I’m in (just a few; there are many))</b></summary> TF2 / FF ,, Postal / Postais ,, WolfWalkers ,, HTTYD ,, Cry Of Fear / Afraid Of Monsters ,, Qsmp / Qsmp2 / Dsmp / Arkanis / SFAWTDE / TrazerCraft ,, Forsaken...Idk ,, CRK ,, FAA ,, Moral Orel ,, Spooky Month ,, Sonic / Familiy.Exe ,, Regretevator ,, Married In Red / Dead Plate / Elevator Hitch ,, No, Im not a Human ,, Deltarune ,, Villanous ,, The Knocker ,, The Man Shadow ,, DOD ,, CFMOT / ITFT / Animatic Battle / Hfjone ,, SlendyTubbies ,, Gravity Falls ,, Mouthwashing ,, WK / Wild Kratts ,, Dr House ,, Dexter ,, Maze Runner . 
 </details>
 
-<p align="center"><img width="538" height="20" alt="Image" src="https://github.com/user-attachments/assets/197e6fa4-2565-49d2-b820-2864baf38430" />
+<p align="center"><img width="400" height="17" alt="Image" src="https://github.com/user-attachments/assets/e0ca9c1c-0579-41b6-b9d6-ae780cff8483" />
+
